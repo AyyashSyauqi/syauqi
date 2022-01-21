@@ -1,0 +1,2 @@
+# syauqi
+Learning every day
